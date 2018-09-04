@@ -22,6 +22,7 @@ telegram账号：jack@lbtc @xrpchina
 近日，张银海在lbtc暴跌和daf毫无进展的同时，开办GJ数字货币交易所，gj.com，不知是否是新一轮的割韭菜行为。
 
 未尽罗列，欢迎各位补充，举报揭发材料可发送至
+
 lbtc_scam_proof@hotmail.com
 
 谢谢
