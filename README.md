@@ -23,9 +23,13 @@
 2017年10月份左右，借着ICO的势头融资诈骗，发行DAF代币，采用250万个DAF代币换取150个以太坊ETH的比例非法融资。宣称三个月后即可在交易所进行流通，实际情况是，截止到目前，没有任何项目进展。投资者如果问到进展情况，只以“在做合规”打发搪塞。
 
 张银海微博：
+
 https://weibo.com/u/6535537383?refer_flag=1005055013_&is_all=1
+
 https://weibo.com/ripplecoinschina?refer_flag=1001030103_&is_all=1
+
 telegram账号：jack@lbtc @xrpchina
+
 微信：ripplecn ripplecn1
 
 近日，张银海在lbtc暴跌和daf毫无进展的同时，开办GJ数字货币交易所，gj.com，不知是否是新一轮的割韭菜行为。
